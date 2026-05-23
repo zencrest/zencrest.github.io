@@ -31,11 +31,6 @@ On May 21, 2026, Lu bought her an avocado-green Xpeng MONA M03 electric car for 
 
 She sent me a video of the car at 10:28, and I met up with her at 22:30 that day.
 
-She stir-fried squid with onions, duck blood pork intestine chicken, eight abalones and four oysters, paired with Tsingtao beer.
-
-We were intimate on the sofa before dinner.
-
-I gave her a full-body massage on the bed after dinner.The nex day we were intimate again at around 6:40.
 
 ## Summary
 
