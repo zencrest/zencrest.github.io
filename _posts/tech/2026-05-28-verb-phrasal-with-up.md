@@ -43,8 +43,9 @@ keywords: act up, add up...
 
 ## beat up
 
-- I really wanted to beat up on her sugar daddy LJY.
+- I really wanted to beat up on her SD LJY.
 - It's not fair to always beat up on me when things go wrong.一出事就总指责我，这太不公平了。
+- Don't laugh at it--my e-bike is really beaten up, but it gets me to work every day.
 
 ## blow up
 
@@ -64,3 +65,16 @@ keywords: act up, add up...
 -  Miaomiao was brought up by her grandparents.抚养
 -  I'd like to bring up a point about the QC test.提出
 -  I felt nauseous and had to bring up everything I ate. 呕吐
+
+## burn up
+
+- They decided to burn up all the old documents.他们决定烧毁所有旧文件。
+- I burned up a lot of calories riding the spin bike.
+- I feel like I'm burning up, I should check my temperature.我感觉我发烧了，我应该量一下体温。
+
+## call up
+
+- I promised to call her up as soon as I arrived.我答应一到就给她打电话。
+- I can't quite call up his name, but I know his face.我记不起他的名字，但我认识他的脸。
+- The old song called up many memories of my youth.这首老歌勾起了我许多青春回忆。
+
