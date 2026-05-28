@@ -78,3 +78,33 @@ keywords: act up, add up...
 - I can't quite call up his name, but I know his face.我记不起他的名字，但我认识他的脸。
 - The old song called up many memories of my youth.这首老歌勾起了我许多青春回忆。
 
+## catch up
+
+- catch up on work 补工作
+- catch up on sleep 补觉
+- catch up on news 补看新闻
+- I’ve been out for surgery, so I have a lot of work to catch up on.我因为做手术休假了，有一大堆工作要补。
+- I lost touch with her for a year, so we have a lot to catch up on.我和她断联一年了，所以彼此有好多近况要聊。
+- It was great to catch up with you after all these years. 叙旧
+
+## cheer up
+
+- I told her a funny story to cheer her up, but it didn't work. = My funny story failed to cheer her up.
+
+## clean up/out/off
+
+- I need to clean up this mess before dad gets home.
+- The new manager was hired to clean up the QC issues.
+- The company is trying to clean up its management.公司正在整顿内部管理。
+- I never cleaned up trading stocks when the market was booming.
+
+## come up
+
+- Smoke came up from the kitchen.厨房里冒出了烟。
+- Something urgent came up, so I can't make the appointment/unable to keep our appointment.
+- A strange smell began to come up from the fridge.冰箱里开始散发出一股怪味。
+
+## crank up/out
+
+- Can you crank up the radio? I love this song.你能把收音机音量调大吗？我喜欢这首歌。
+- The factory decided to crank up production to meet the demand.工厂决定加大生产力度以满足需求。
