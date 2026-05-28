@@ -40,3 +40,27 @@ keywords: act up, add up...
 - We messed up the entire project due to QC errors.Our quality control failures led to the collapse of the whole project.
 
 - I balled up the paper and threw it in the trash bin.
+
+## beat up
+
+- I really wanted to beat up on her sugar daddy LJY.
+- It's not fair to always beat up on me when things go wrong.一出事就总指责我，这太不公平了。
+
+## blow up
+
+- Can you help me blow up these balloons for the opening ceremony? 开业典礼
+- She tends to blow up over small things, but I guess there's an elephant in the room.
+- I asked whether you wanted to win the argument or to be understood.你是想在争吵中分出胜负，还是想被人理解。
+- I blew up this picture so I can see the details.我把这张照片放大，好看清细节。
+
+## break up
+
+- She decided to break up after five years together.
+- The ice on the lake started to break up.湖上的冰开始破裂。childhood
+- I decided to break up with her after a few days of thinking.=After thinking for a few days, I made up my mind to split up with her.
+
+## bring up
+
+-  Miaomiao was brought up by her grandparents.抚养
+-  I'd like to bring up a point about the QC test.提出
+-  I felt nauseous and had to bring up everything I ate. 呕吐
