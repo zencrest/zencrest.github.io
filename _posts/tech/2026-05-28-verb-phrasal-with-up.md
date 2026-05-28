@@ -25,6 +25,15 @@ keywords: act up, add up...
 - The number of products doesn't add up. There must be a mistake.
 - The inventory figures don't add up. Please check again.库存数据对不上，请重新核对。
 
+## back up
+
+- Back up your device with your PC or Mac（用电脑为设备备份）
+- My hard drive died, and I didn't back up any files.
+- I'll back you up if you need help.如果你需要帮助，我会支持你。
+- The Mercedes van had to back up (reversed) to turn around on the narrow road.这辆奔驰厢式货车只得倒车，才得以在狭窄的街道上掉头。
+
+- The toilet’s clogged/backed up again. Someone flushed cigarette butts and toilet paper down it.
+
 ## ball up
 
 - We balled up the whole project with our quality control mistakes.我们因品控失误，把整个项目搞砸了。
