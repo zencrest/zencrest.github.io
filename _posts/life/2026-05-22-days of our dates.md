@@ -65,7 +65,7 @@ description: 自2023年12月29日结识CC，到如今已有2年半，点点滴�
 - May 25 I asked her out for dinner.
 - May 26 her period was coming.
 - May 30 her period was gone and She stir-fried octopus for me.
-- May 31 Her daughter fractured her right forearm and has been put in a cast.
+- May 31 Her daughter Miaomiao fractured the right forearm and has been put in a cast.
 
 ## Summary
 
