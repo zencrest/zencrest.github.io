@@ -43,17 +43,17 @@ description: 自2023年12月29日结识CC，到如今已有2年半，点点滴�
 
 ## April. 2026 to Now: Days at TS Gated Community
 
-| Date     | Description | Test Text     |
-| :---        |    :----:   |          ---: |
-| 260404      | JHJY #23 602 Lane 68x2   | Connected x roleplay  |
-| 260420   | TS #20 x2        | First phone shot      |
-| 260425     | TS #20 x2     | First time   |
-| 260501-2   | TS #20 x2     | first mouth      |
-| 260517      | TS #20 x1       | on sofa   |
-| 260521-22      | TS #20 x1       | quick   |
-| 260525-26      | TS #20 x1       | before her period   |
-| 260530 11:00      | TS #20 x2       | 1 ride 2 behind but fail 爆炒八爪鱼  |
-| 260531-0601      | Hefei #7    | Soul Rider & Her daughter fractured her right forearm |
+| Date     | Description | Test Text     | proof |
+| :---        |    :----:   |     :----:    |   ---: |
+| 260404      | JHJY #23 602 Lane 68x2   | Connected x roleplay  | QVR|
+| 260420   | TS #20 x2        | First phone shot      |QVR|
+| 260425     | TS #20 x2     | First time   |QVR|
+| 260501-2   | TS #20 x2     | first mouth      |QVR|
+| 260517      | TS #20 x1       | on sofa   |QVR|
+| 260521-22      | TS #20 x1       | quick   |QVR|
+| 260525-26      | TS #20 x1       | before her period   |QVR|
+| 260530 11:00      | TS #20 x2       | 1 ride 2 behind but fail 爆炒八爪鱼  |14Pro photos|
+| 260531-0601      | Hefei #7    | Soul Rider |WeChat Video|
 
 - Avocado-green Xpeng MONA M03 EV for roughly 150,000 yuan.
 - Lu placed the pre-order for this car on May 21 and she will pick it up this week.
@@ -65,6 +65,7 @@ description: 自2023年12月29日结识CC，到如今已有2年半，点点滴�
 - May 25 I asked her out for dinner.
 - May 26 her period was coming.
 - May 30 her period was gone and She stir-fried octopus for me.
+- May 31 Her daughter fractured her right forearm and has been put in a cast.
 
 ## Summary
 
