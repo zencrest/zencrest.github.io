@@ -71,5 +71,5 @@ description: 自2023年12月29日结识CC，到如今已有2年半，点点滴�
 
 Kevin works as a sales manager at an injection molding factory in Suzhou. With a monthly income under $1,500, he’s currently navigating trials of love, mortality, and career uncertainty. 
 
-- May 30 around 11:00 (Time), TS#20 (Location), CL&Kevin, a made date (Cause/origin), twice (one on sofa and one in bedroom), during 1~2, she stir-fried octopus for dinner, we departed at 12:35 (She was back to hometown), she said she will make it done in another date.
+- May 30 around 11:00 (Time), TS#20 (Location), CL&Kevin, a made date (Cause/origin), twice (one on sofa and one in bedroom), during 1~2, she stir-fried octopus for dinner, we splited up at 12:35 (She went back to hometown), she said she will make it done in another date.
 
