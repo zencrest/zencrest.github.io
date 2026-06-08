@@ -54,10 +54,11 @@ description: 自2023年12月29日结识CC，到如今已有2年半，点点滴�
 | 260525-26      | TS #20 x1       | before her period   |QVR|
 | 260530 11:00      | TS #20 x2       | 1 ride 2 behind but fail 爆炒八爪鱼  |14Pro photos|
 | 260531-0601      | Hefei #7    | Soul Rider |WeChat Video|
+| 260604-0605      | TS #20 x2    | GC+Soul Rider |QVR|
 
 - Avocado-green Xpeng MONA M03 EV for roughly 150,000 yuan.
 - Lu placed the pre-order for this car on May 21 and she will pick it up this week.
-- I will find out the car's plate number.
+- I will find out the car's plate number.(I noted down the number on the night of June 4)
 
 - I gave her seven pink starry roses on May 20.
 - She sent me a video of the car at 10:28, and I met up with her at 22:30 that day. 
