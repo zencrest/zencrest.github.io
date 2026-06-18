@@ -58,7 +58,7 @@ description: 自2023年12月29日结识CC，到如今已有2年半，点点滴�
 | 260610-0611      | TS #20 x2    | Sofa+morning ride |14Pro|
 | 260614      | TS #20 x2    | Bed+ride |QVR|
 
-- Avocado-green Xpeng MONA M03 EV for roughly 150,000 yuan.
+- Grey Xpeng MONA M03 EV for roughly 150,000 yuan.
 - Lu placed the pre-order for this car on May 21 and she will pick it up this week.
 - I will find out the car's plate number.(I noted down the number on the night of June 4)
 
@@ -69,6 +69,8 @@ description: 自2023年12月29日结识CC，到如今已有2年半，点点滴�
 - May 26 her period was coming.
 - May 30 her period was gone and She stir-fried octopus for me.
 - May 31 Her daughter Miaomiao fractured the right forearm and has been put in a cast.
+- June 13 she had an e-bike accident.
+- June 14 morning, she took me for a ride to Jing'an Temple.
 
 ## Summary
 
