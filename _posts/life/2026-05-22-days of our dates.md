@@ -55,6 +55,8 @@ description: 自2023年12月29日结识CC，到如今已有2年半，点点滴�
 | 260530 11:00      | TS #20 x2       | 1 ride 2 behind but fail 爆炒八爪鱼  |14Pro photos|
 | 260531-0601      | Hefei #7    | Soul Rider |WeChat Video|
 | 260604-0605      | TS #20 x2    | GC+Soul Rider |QVR|
+| 260610-0611      | TS #20 x2    | Sofa+morning ride |14Pro|
+| 260614      | TS #20 x2    | Bed+ride |QVR|
 
 - Avocado-green Xpeng MONA M03 EV for roughly 150,000 yuan.
 - Lu placed the pre-order for this car on May 21 and she will pick it up this week.
